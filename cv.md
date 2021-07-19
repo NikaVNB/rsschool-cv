@@ -43,3 +43,20 @@ Now I am a chief accountant with extensive experience, strong analytical skills 
 
 #### Achievements:
 * Preparation and successful implementation of business plan, including registration of production equipment and cars in leasing, recovery and establishing of accounting, tax accounting and management accounting*
+
+## Education
+**2009**  
+Belarusian Trade and Economics University of Consumer Cooperatives "BTEU", Gomel  
+*Jurisprudence*
+
+**2005**  
+International University "MITSO", Gomel  
+*Management and marketing, Finance and credit*
+
+**Courses:**  
+* 2016 – YES!  - English  
+* 2016 – Investing
+* 2021 – HTML/CSS
+
+## English
+**А2+** - Pre-Intermediate
